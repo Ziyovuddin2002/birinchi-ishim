@@ -1,0 +1,2 @@
+"# birinchi-ishim" 
+"# birinchi-ishim" 
